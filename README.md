@@ -1,1 +1,1 @@
-# RushikeshPatil.github.io
+# patilrushi.github.io
